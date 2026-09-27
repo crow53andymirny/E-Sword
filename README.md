@@ -227,4 +227,4 @@ e-Sword is offered as a complete free version with all features and updates incl
 Unlock a deeper understanding of the Holy Scriptures today by downloading e-Sword! Experience the full suite of features available for free and start your transformative journey in scripture study.
 
 ---
-**Last updated:** 2026-09-27 13:38:15 UTC
+**Last updated:** 2026-09-27 18:06:59 UTC
